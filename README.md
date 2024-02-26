@@ -10,3 +10,4 @@
 AboRian52/AboRian52 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+![IMG_0055](https://github.com/AboRian52/AboRian52/assets/161308384/0268b48c-b1dd-4408-b536-9d17973b73e6)
